@@ -1,9 +1,8 @@
 # Katherine Michelle Madhuri-Asencio
 
 Location: Los Angeles, CA  
-Email: katherine@madhuri.me  
 Github: schrodingerkitkat  
-Phone: (310) 435-6498  
+
 
 ## SUMMARY
 
